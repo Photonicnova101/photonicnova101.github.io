@@ -1,5 +1,3 @@
-**Privacy Policy**
-
 **BSSW Inc**
 
 *Effective Date: April 23, 2025*
